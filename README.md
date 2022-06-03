@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @charleanybeany
 - 👀 I’m interested in coding and mental health
-- 🌱 I’m currently learning nursing and web developement 
+- 🌱 I’m currently learning and web developement 
 - 💞️ I’m looking to collaborate on projects and teams, creating and building cool and awesome stuff!
 - 📫 How to reach me: charlenesmith2480@gmail.com, or text (650)-278-1353
 
