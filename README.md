@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and mental health
 - 🌱 I’m currently learning web developement 
 - 💞️ I’m looking to collaborate on projects and teams, creating and building cool and awesome stuff!
-- 📫 How to reach me: charlenesmith2480@gmail.com, or text (650)-278-1353
+- 📫 How to reach me: charlenesmith2480@gmail.com, or text (650)-656-7348
 
 <!---
 charleanybeany/charleanybeany is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
